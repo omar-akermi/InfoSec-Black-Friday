@@ -111,6 +111,9 @@ https://store.7asecurity.com
 50% off any course with code: BFCM50 \
 Deal ends: December 2nd 
 
+eLearnSecurity Certification (50%)
+https://elearnsecurity.com/
+50% off any certification : loyal50
 ## Mini Course Bundles:
 
 ## Hardware:
